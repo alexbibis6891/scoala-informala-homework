@@ -1,1 +1,1 @@
-# scoala-informala-homework
+Asta-i un test pentru o chestie as it were, per say.
